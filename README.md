@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on PEOPLE. Which introduce the modern big data technologies for companies.
 - 📫 How to reach me ? Let me massage via email linkedin, or here.
 - 😄 Pronouns: U.
-- ⚡ Fun fact: Ima sales 'specialist' in small company.
 
 <!---
 ur64n/ur64n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
